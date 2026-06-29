@@ -1,4 +1,4 @@
-
+welcome to bloxburg Scripts best is the best welcome to bloxburg Script, featuring god mode and teleport. Safe and powerful for all your needs.
 
 
 
